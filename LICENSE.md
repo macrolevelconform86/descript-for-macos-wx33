@@ -1,4 +1,4 @@
-# 
+# smart Descript for macOS Overlay | green-screen-removal + time-remapping offers the most advanced Descript for macOS overlay, with green-screen-removal and time-remapping. Ideal
 
 
 
